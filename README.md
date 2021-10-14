@@ -1,4 +1,4 @@
-**la recep efsanesi adlı kişi pusha yavşağı daha altyapı kullanmayı bilmiyorsun sabit bi adın bile yok noname türeme oğlu türeme kimseye prim yok dio KLFDJSALŞKFDJAŞKLFJDSAŞLKJFDŞALSKFJADSKLŞFJSKLŞFDJAS**
+**la recep efsanesi adlı kişi pusha yavşağı daha altyapı kullanmayı bilmiyorsun sabit bi adın bile yok noname türeme oğlu türeme kimseye prim yok dio KLFDJSALŞKFDJAŞKLFJDSAŞLKJFDŞALSKFJADSKLŞFJSKLŞFDJAS** (bu arada altyapıları hiç bişisini çözmeyip direk kullanmış hatalarını çözer atarım git bi public yönetmeyi öğren aq)
 
 **güncelleme : lan amk recep efsane türemesi gidip mercyin paylaştığı altyapıyı alıp benim diye kullanmayı iyi biliyorsun FDJSAKFDSHAFJKLDAHSFJKSHDJKLDHSAFJKDAS MAL AQ**
 
